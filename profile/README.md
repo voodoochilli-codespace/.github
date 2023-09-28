@@ -9,4 +9,4 @@ Your powerhouse for digital transformation - Let's break barriers together and r
 * Continuously Improving - We are lifelong learners.
 
 ### Let's work together, to unlock your full potential.
-Please, [Get in touch](https://voodoochilli.com/contact-us/ "Contact Voodoochilli"), let's discuss how we can transform your project into a success story.
+[Get in touch](https://voodoochilli.com/contact-us/ "Contact Voodoochilli"), let's discuss how we can transform your project into a success story.
